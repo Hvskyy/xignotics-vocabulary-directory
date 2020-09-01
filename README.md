@@ -1,0 +1,1 @@
+# xignotics-vocabulary-directory
